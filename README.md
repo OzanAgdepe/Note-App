@@ -3,5 +3,8 @@
 **
 
 
-https://github.com/OzanAgdepe/Note-App/assets/140605470/9aab5974-9ba7-49f9-94b8-8f9fa05f85d3
+
+
+
+https://github.com/OzanAgdepe/Note-App/assets/140605470/c9380d80-58eb-42c9-ba79-e4242b140d80
 
